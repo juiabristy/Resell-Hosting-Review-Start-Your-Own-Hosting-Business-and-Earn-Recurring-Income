@@ -144,8 +144,8 @@ This is what we feel is an offer you will be very hard to refuse. It is absolute
 
 If you you believe our hosting package does not work for you and does not help, you can request a full refund, first by trying the service.
 
-**Pros and Cons of Resell Hosting
-**
+**Pros and Cons of Resell Hosting**
+
 Pros:
 
     100% rebrandable & white-label
